@@ -1,4 +1,4 @@
-
+Experience re:rangers x like never before with automatic re:rangers x Script, the #1 Script. Includes auto-upgrade and no cooldown for unbeatable
 
 
 
